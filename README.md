@@ -22,4 +22,4 @@ Check out the meme campaign and join the movement on X (Twitter).
 
 ---
 
-> “The beaver is a proud and noble animal.” — Possibly Not Mark C.
+> “The beaver is a proud and noble animal.” — Possibly Not Mark !
